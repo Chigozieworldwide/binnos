@@ -11,7 +11,7 @@
 
 
 
-![20200808_16075](https://github.com/Chigozieworldwide/TROY/blob/main/20220601_181033.png)
+![20200808_16075](https://github.com/Chigozieworldwide/TROY/blob/main/2022.png)
 
 
 
